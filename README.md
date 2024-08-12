@@ -11,3 +11,4 @@ Meu nome é Vinicius Ramos
 viniciusbarrosramos098@gmail.com
 
 @viicius_ramos098
+![](https://media.giphy.com/media/UfR30gxLc5mxoJClnl/giphy.gif?cid=ecf05e47gfmgyl4uso01mif80q9jkvdwyo45awbacn00gdr6&ep=v1_gifs_search&rid=giphy.gif&ct=g)
